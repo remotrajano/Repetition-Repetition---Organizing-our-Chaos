@@ -5,3 +5,9 @@ you write about a man who's about to commit suicide and realise how hard to find
 you can't be at peace until you understand why you had to die, and the story would be a sort of purgatory of sould going backwards throw a giant maze of broken memories
 purgatory of souls*
 of clubbing souls
+
+blablalba lba lba
+xx
+xxxx
+xxxxx
+
